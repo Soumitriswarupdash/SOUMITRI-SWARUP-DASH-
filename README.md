@@ -1,0 +1,2 @@
+# SOUMITRI-SWARUP-DASH-
+ About SOUMITRI SWARUP DASH I'm soumitri a mechatronic engineer with dynamic and self driven professional with extensive experience in control system with embedded robotics , Fpv&amp;Drone . My passion centered in mechine learning and web development , accomplishment with robotics and real time based robotics enthusiast.I am skilled at developing and testing various robots at real time based machines etc...I want to discover more about the amazing world of self driving cars.My goal is to grow as a person and a professional everyday!.
